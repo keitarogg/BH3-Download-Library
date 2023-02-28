@@ -1,0 +1,1 @@
+**[Beta Launcher | ? ? ? | ](https://bundle.bh3.com/public/Beta/PC/%E5%B4%A9%E5%9D%8F3%20Beta_20221020184228.exe)**
